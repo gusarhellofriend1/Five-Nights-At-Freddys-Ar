@@ -239,4 +239,4 @@ Five Nights at Freddy's AR is available as a complete free version, with all fea
 Don't miss out on the excitement! Download Five Nights at Freddy's AR now and face the animatronics in your own home!
 
 ---
-**Last updated:** 2026-10-22 21:00:28 UTC
+**Last updated:** 2026-10-23 00:15:53 UTC
